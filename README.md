@@ -39,4 +39,4 @@
 <br/>
 
 
-> Obrigada por sua visita! :sparkling_heart:
+> Obrigada por sua visita! 
